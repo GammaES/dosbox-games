@@ -1,2 +1,17 @@
 # dosbox-games
-Added by legendary veljko! i dont know where else to host these games ( except google drive)
+Added by legendary veljko!
+
+Owned by my father
+
+Lion King - 2009
+
+Mario - 2009
+
+VIKINGS - 2015
+
+LEMINGS3 - 2009
+
+prehist2 - 2009
+
+the-incredible-machine - 2009
+
