@@ -1,4 +1,4 @@
-# dosbox-games
+# DOS BOX games
 Added by legendary veljko!
 
 Owned by my father
